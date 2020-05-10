@@ -1,4 +1,4 @@
-# Research-on-Sjogren-s-Disease-
+# Research-on-Rare-Disease-
 
 List of Contents:
 
